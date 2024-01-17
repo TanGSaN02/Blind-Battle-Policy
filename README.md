@@ -27,6 +27,6 @@ This privacy assurance aligns seamlessly with Blind Battle Game's commitment to 
 
 ## Contact Us
 
-If you have any questions or concerns regarding our privacy assurance, please feel free to contact us at [your contact information].
+If you have any questions or concerns regarding our privacy assurance, please feel free to contact us at chsri2004@gmail.com,+919347429999.
 
 **Download Blind Battle Game now and join the inclusive gaming community!**
